@@ -1,0 +1,1 @@
+archive of original starbound korean translation mod
